@@ -21,6 +21,6 @@
 
 
 ### ⚡ Fun fact:
-* J'aime :heart: Voyage ,la cuisine, la muscu .
+* J'aime :heart: Voyager, la cuisine, la muscu .
 * J'écoute beaucoup de musique et podcasts parfois
 
